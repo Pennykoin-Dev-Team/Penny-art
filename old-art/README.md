@@ -1,1 +1,1 @@
-Art for the Pennykoin currency.
+Old Art prior October 2018 for the Pennykoin currency.
